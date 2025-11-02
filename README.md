@@ -24,7 +24,7 @@ Patan Multiple Campus, Tribhuvan University, Lalitpur, Nepal
 
 - Email: [sandeshdhakal2073@gmail.com](mailto:sandeshdhakal2073@gmail.com)  
 - GitHub: [https://github.com/Sandesh-d12](https://github.com/Sandesh-d12)  
-- LinkedIn: [https://www.linkedin.com/in/sandesh-dhakal](https://www.linkedin.com/in/sandesh-dhakal)  
+- LinkedIn: [https://www.linkedin.com/in/sandesh-dhakal](https://www.linkedin.com/in/sandesh-dhakal-b7434a262/)  
 
 ---
 
