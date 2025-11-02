@@ -28,8 +28,4 @@ Patan Multiple Campus, Tribhuvan University, Lalitpur, Nepal
 
 ---
 
-## ⚡ Fun Fact
-I love building full-stack web applications, automating repetitive tasks with Cypress, and exploring new web technologies to improve user experience.  
-
----
 
